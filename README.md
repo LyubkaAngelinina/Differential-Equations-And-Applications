@@ -1,1 +1,0 @@
-# Differential-Equations-And-Applications
